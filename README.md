@@ -1,1 +1,0 @@
-pkornilov.github.io
